@@ -1,6 +1,6 @@
   # ____🎥 i love my kiddo omfg ‹
 
-![image alt](https://github.com/MARTINEATISHY/Vincythingyz/blob/a968c404ba107e30445c3c1b333b9c22beb6b2f3/STK-20251128-WA0005%20(1).webp)
+![image alt](https://github.com/MARTINEATISHY/Teststeswwt/blob/cd537d03b759209cec7372eec823b84bc1747451/VID-20251208-WA0005.mp4)
 
 
 **° ′’ 🦈 — heya there !  ’′ °**
