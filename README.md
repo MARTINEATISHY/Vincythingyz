@@ -1,6 +1,6 @@
-  # ____🎥 i love my kiddo omfg ‹
+  # __ __ 📽️ i love my kiddo omfg ‹
 
-![image alt](https://github.com/MARTINEATISHY/Teststeswwt/blob/cd537d03b759209cec7372eec823b84bc1747451/VID-20251208-WA0005.mp4)
+![image alt](https://github.com/MARTINEATISHY/Teststeswwt/blob/67297aad0b775f115bef747be97a5b998d21a3d4/hazbin-hotel-vox.gif)
 
 
 **° ′’ 🦈 — heya there !  ’′ °**
