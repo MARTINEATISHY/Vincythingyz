@@ -1,9 +1,3 @@
-  # --- X✘x×· i love my kiddo omfg ^_^ ‹
-
-
-  @
-  
-
 ![image alt](https://github.com/MARTINEATISHY/Nothing/blob/da56df7f3a9df95e4ebffcbc420badb6410bd4df/angel-dust-hazbin-hotel.gif)
 
 
